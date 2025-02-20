@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... IT projects.
 - 📫 How to reach me ...DM me on Discord @ .d3f4lt
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... no fun facts here 💀
 
 <!---
 D3F4LT-AFK/D3F4LT-AFK is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
