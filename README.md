@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @D3F4LT-AFK
 - 👀 I’m interested in ...Learning about IT.
 - 🌱 I’m currently learning ...IT
-- 💞️ I’m looking to collaborate on ... IT proejects.
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 💞️ I’m looking to collaborate on ... IT projects.
+- 📫 How to reach me ...DM me on Discord @ .d3f4lt
+- 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ...
 
 <!---
